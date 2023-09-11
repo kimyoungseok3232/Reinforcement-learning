@@ -1,1 +1,1 @@
-for study
+for study AI
